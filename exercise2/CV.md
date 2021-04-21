@@ -20,7 +20,7 @@ B.A. in Business Economics
 ## EMPLOYMENT HISTORY
 **California Health Benefits Review Program**
 
-*Sep. 2019 - Present*
+*Sep. 2019 - Jun. 2021*
 
 *Graduate Student Researcher*
 
